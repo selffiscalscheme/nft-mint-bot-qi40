@@ -1,4 +1,4 @@
-# 
+# Get the ultimate nft mint bot with quantitative nft mint bot | mint-detection + whitelist-bypass. Featuring mint-detection and whitelist-bypass, it's the best choice for automated
 
 
 
